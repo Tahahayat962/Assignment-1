@@ -1,1 +1,6 @@
-Research here
+For my research portion, I looked at an Article called "The Portfolio Organizer" in which a criteria of 17 things is provided for what makes a good portfolio,
+<p> the reader is encouraged to pick the most relevant points to their field of study and use those so the six criteria that I chose are; </p>
+<p> completeness, knowledge of content, accuracy of information, self-assessment and goal setting, variety of entries and visual appeal.</p>
+<p> I think that my portfolio is complete and that I have enough knowledge of the content so far, I have set goals in the portfolio, </p>
+<p> I do have a variety of different entries although the visual appeal is very basic and clunky.</p>
+<p>Rolheiser-Bennett, N. Carol., Bower, B., & Stevahn, L. (2000). Identifying Learning Expectations and Criteria. In The portfolio organizer : succeeding with portfolios in your classroom (1st ed., pp. 17–23). essay, Association for Supervision & Curriculum Development. Retrieved September 25, 2024, from https://web.p.ebscohost.com/ehost/ebookviewer/ebook/ZTAwMHhuYV9fNzU1MjVfX0FO0?sid=45557ed6-a156-48d2-b730-951f2f7cdd65@redis&vid=0&format=EB&lpid=lp_17&rid=0. </p>
